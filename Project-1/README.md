@@ -23,3 +23,4 @@ This website build using technology html and css only the fundamental technologi
 Your feedback is very important for me!.If you any issues or have suggestions for improvement, please reach out to our support team at
 yadavavnish683@gmail.com
 
+Thank you for choosing E GURU Online Learning Platform. Happy learning!
